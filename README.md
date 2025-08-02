@@ -6,7 +6,7 @@
 
 ♡ My main interest is Roblox games!! Forsaken, block tales, dream game, ljms, etc
 
-♡ Multishipper
+♡ Multishipper! I love Ichance, Toxichero, Eunash the most!! If it's not illegal or morally worng I'll like it probs :P
 
 ♡ Please don't be weird to me.
 
